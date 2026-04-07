@@ -1,4 +1,4 @@
-Kumusta (Hello), I'm @ohhgianinaa 😊
+Kumusta (Hello), I'm G 😊
 
 💻: Remote Product Mamager in Transit Tech
 ⚡: Snacking offline
